@@ -6,6 +6,8 @@ If you are seeing this, that means you have clicked on my GitHub from Pony Town.
 ![image](https://github.com/user-attachments/assets/a73c18fb-20bb-4f6e-8fb6-2e57651a3621)
 
 I am very young. That's all you need to know about my age. (Minor)
+
 I only RP with friends. Mainly because of how weird people are, even if it's in Safe Server.
+
 idk what else to put here.
 
