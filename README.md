@@ -11,3 +11,14 @@ I only RP with friends. Mainly because of how weird people are, even if it's in 
 
 idk what else to put here.
 
+![image](https://github.com/user-attachments/assets/a80acebe-ef83-498f-8b9d-c5574400e4f1)
+
+suspected ossd-1
+
+weird af music taste
+
+i passed my autism test (didnt even study)
+
+huge sonic fan
+
+(im gonna make these like cards eventually i swear)
